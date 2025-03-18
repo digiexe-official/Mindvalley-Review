@@ -19,8 +19,6 @@ But here’s the thing: it’s not your typical online learning platform. It’s
 
 **Mindvalley Pricing 💸**
 
-<img width="889" alt="image" src="https://github.com/user-attachments/assets/84e3ead9-9eae-4ef3-943b-d4c0d8fef136" />
-
 [<img width="216" alt="image" src="https://github.com/user-attachments/assets/c38c2b87-7d8d-426b-abd4-250433aee4ec" />
 ](https://www.bytegain.com/Recommended/mindvalley/)
 
@@ -30,6 +28,8 @@ But here’s the thing: it’s not your typical online learning platform. It’s
 **Monthly Plan:** $59 per month
 **Annual Plan:** $299 per year (works out to about $25 per month)
 With the annual plan, you get unlimited access to all of Mindvalley’s courses, and new content is added regularly. It’s a great deal if you’re serious about diving deep into personal growth. 
+
+<img width="889" alt="image" src="https://github.com/user-attachments/assets/84e3ead9-9eae-4ef3-943b-d4c0d8fef136" />
 
 **Why I’m Loving Mindvalley Courses 🤩?**
 
