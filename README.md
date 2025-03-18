@@ -31,7 +31,23 @@ With the annual plan, you get unlimited access to all of Mindvalley’s courses,
 
 <img width="889" alt="image" src="https://github.com/user-attachments/assets/84e3ead9-9eae-4ef3-943b-d4c0d8fef136" />
 
+**How to Get Started with Mindvalley?**
+
+**Sign Up:** Go to the Mindvalley website and create an account.
+
+**Choose a Course:** Browse the courses and pick one that fits your goals, whether it’s personal growth, fitness, or mindset.
+
+**Join the Community:** Become part of the global Mindvalley community for support and inspiration.
+
+**Start Learning:** Begin your course at your own pace and apply what you learn to your life.
+
+**Stay Consistent:** Dedicate a little time every day to stay on track and keep improving!
+It’s that easy! Just start today and see the transformation.
+
 **Why I’m Loving Mindvalley Courses 🤩?**
+
+![image](https://github.com/user-attachments/assets/90edad26-2767-472c-b67a-fa5e58f0890d)
+
 
 **1. Expert Instructors:**
 
@@ -225,42 +241,36 @@ The courses are broken down into easy-to-digest modules so that you can take it 
 
 
 **Is Mindvalley Worth It? 🤔**
+
 Okay, let’s talk about whether Mindvalley is worth your time and money. Spoiler alert: if you’re serious about personal growth, it absolutely is.
 Here’s why:
 
 **Transformational Learning:**
+
 These courses aren’t just about theory. They’re designed to change your life. No fluff – just results.
 
 **World-Class Experts:**
+
 You get to learn from the best in the field. If that doesn’t blow your mind, I don’t know what will!
 
 **Holistic Approach:**
+
 Mindvalley doesn’t just focus on one area of your life. They help you improve your mindset, health, career, relationships, and more.
 
 **Supportive Community:**
+
 The Mindvalley community is always there to encourage, support, and motivate you on your journey.
 
 **Flexibility:** 
+
 Whether you’re working full-time or a busy parent, you can fit Mindvalley’s courses into your schedule.
 
-**How to Get Started with Mindvalley?**
-
-**Sign Up:** Go to the Mindvalley website and create an account.
-
-**Choose a Course:** Browse the courses and pick one that fits your goals, whether it’s personal growth, fitness, or mindset.
-
-**Join the Community:** Become part of the global Mindvalley community for support and inspiration.
-
-**Start Learning:** Begin your course at your own pace and apply what you learn to your life.
-
-**Stay Consistent:** Dedicate a little time every day to stay on track and keep improving!
-It’s that easy! Just start today and see the transformation.
 
 **FAQs ❓**
 
 **1. What is Mindvalley?**
  
- Mindvalley is an online platform offering courses on personal growth, health, fitness, and more taught by top experts.
+ Mindvalley is an online platform offering courses on personal growth, health, fitness, and more that top experts teach.
 
 **2. How much does Mindvalley cost?**
 
