@@ -6,9 +6,12 @@ Hey there! So, I’ve been diving into Mindvalley lately, and let me tell you �
 Imagine this: learning from the best of the best in everything from meditation to leadership, health, relationships, and so much more. In this review, I’m going to walk you through my experience with Mindvalley’s courses, community, overall vibe, and whether it's the right fit for you in 2025.
 Let’s jump right in! 🙌
 
+<img width="875" alt="image" src="https://github.com/user-attachments/assets/d5500b90-f8e3-47a2-9951-3803299bb5fc" />
+
+
 **What is Mindvalley? 🌟**                          
 
-Mindvalley is not just an online learning platform – it’s a transformative experience. It’s designed for people who want to improve themselves and reach their full potential. Mindvalley's courses cover everything from mindset to health, productivity and spirituality.
+Mindvalley is not just an online learning platform – it’s a transformative experience. It’s designed for people who want to improve themselves and reach their full potential. Mindvalley's courses cover everything from mindset to health, productivity, and spirituality.
 
 Think of it as a personal growth playground where you can level up in every area of your life.
 
@@ -208,7 +211,10 @@ The courses are broken down into easy-to-digest modules so that you can take it 
 
 **Mindvalley Pricing 💸**
 
- CLICK HERE AND KNOW MORE ABOUT MEMBERSHIP SUBSCRIPTION PLAN       
+<img width="889" alt="image" src="https://github.com/user-attachments/assets/84e3ead9-9eae-4ef3-943b-d4c0d8fef136" />
+
+
+ ![image](https://github.com/user-attachments/assets/cdee322f-f5a3-46cd-bb83-26401ab46bf3) [CLICK HERE AND KNOW MORE ABOUT MEMBERSHIP SUBSCRIPTION PLAN](https://www.bytegain.com/Recommended/mindvalley/)       
 
 **Mindvalley’s pricing is pretty straightforward:**
 
